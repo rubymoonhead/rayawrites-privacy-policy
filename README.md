@@ -4,7 +4,7 @@ Privacy policy for my [www.rayawrites.com](https://www.rayawrites.com/) website
 
 # Privacy Policy
 
-Last updated: 05 July 05 2022
+Last updated: 05 July 2022
 
 This Privacy Policy describes Our policies and procedures on the collection, use and disclosure of Your information when You use the Service and tells You about Your privacy rights and how the law protects You.
 
