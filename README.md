@@ -1,5 +1,5 @@
 # rayawrites-privacy-policy
-Privacy policy for my www.rayawrites.com website
+Privacy policy for my [www.rayawrites.com](https://www.rayawrites.com/) website
 
 
 # Privacy Policy
